@@ -40,4 +40,4 @@ platform-safe: no graphic material and no glorification of violence.
 
 ## Contact
 
-**[YOUR EMAIL HERE]**
+Bwe2406@icloud.com
